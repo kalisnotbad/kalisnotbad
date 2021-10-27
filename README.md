@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @kalisnotbad
+- 👀 I’m interested in learning new things.
+- 🌱 I’m currently studying Cyber Security
